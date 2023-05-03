@@ -1,4 +1,4 @@
-# waikan
+# Wai-Kan
 
 1. 经济学人
 
