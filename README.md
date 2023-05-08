@@ -1,37 +1,73 @@
 # Wai Kan
 
-![图片4](https://user-images.githubusercontent.com/132209620/235826208-abb3747b-eeaa-45e5-8c69-7ca94aba6191.png)
+![经济学人](https://user-images.githubusercontent.com/132209620/236725569-df7cae81-4585-43de-ae61-4ffd73d5ec6f.png)
 
 1. EPUB：https://url26.ctfile.com/d/41895126-55855968-b29269?p=9167 (访问密码: 9167)
 2. MOBI：https://url26.ctfile.com/d/41895126-55855971-c8b32f?p=9167 (访问密码: 9167)
 3. PDF：https://url26.ctfile.com/d/41895126-55855965-0dcf71?p=9167 (访问密码: 9167)
 
-![图片5](https://user-images.githubusercontent.com/132209620/235826595-99fbbe5a-2b54-4753-a3d3-b3362abeb4a9.png)
+![纽约客](https://user-images.githubusercontent.com/132209620/236725674-093ecec4-adb0-433b-9b08-35e38a2300ca.png)
 
 1. EPUB：https://url26.ctfile.com/d/41895126-55855997-e1cb41?p=9167 (访问密码: 9167)
 2. MOBI：https://url26.ctfile.com/d/41895126-55856000-785c3c?p=9167 (访问密码: 9167)
 3. PDF：https://url26.ctfile.com/d/41895126-55855994-ce3035?p=9167 (访问密码: 9167)
 
-![图片6](https://user-images.githubusercontent.com/132209620/235826784-5f64873f-ed72-49e4-8a8a-312572fbb041.png)
+![连线](https://user-images.githubusercontent.com/132209620/236725675-3b745f91-ac9b-495b-92b0-0be1bd859df3.png)
 
 1. EPUB：https://url26.ctfile.com/d/41895126-55856025-e210ea?p=9167 (访问密码: 9167)
 2. MOBI：https://url26.ctfile.com/d/41895126-55856028-451850?p=9167 (访问密码: 9167)
 3. PDF：https://url26.ctfile.com/d/41895126-55856031-33c509?p=9167 (访问密码: 9167)
 
-![图片7](https://user-images.githubusercontent.com/132209620/235827034-cf597ea6-1ae6-4b9e-b628-8aac46117ac1.png)
+![大西洋月刊](https://user-images.githubusercontent.com/132209620/236728120-9f9c4df0-5fd3-466a-a958-9e5726a1daa1.png)
 
 1. EPUB：https://url26.ctfile.com/d/41895126-55856046-9deadd?p=9167 (访问密码: 9167)
 2. MOBI：https://url26.ctfile.com/d/41895126-55856049-daae6b?p=9167 (访问密码: 9167)
 3. PDF：https://url26.ctfile.com/d/41895126-55856043-473940?p=9167 (访问密码: 9167)
 
-![图片8](https://user-images.githubusercontent.com/132209620/235827163-97a1c953-ec87-4a0c-845a-c33a1366d105.png)
+![麻省理工科技评论](https://user-images.githubusercontent.com/132209620/236725708-21b04bc0-6919-4cce-9d07-1e7faea4ed3e.png)
 
 1. EPUB：https://url26.ctfile.com/d/41895126-55856061-93e352?p=9167 (访问密码: 9167)
 2. MOBI：https://url26.ctfile.com/d/41895126-55856064-9cd817?p=9167 (访问密码: 9167)
 3. PDF：https://url26.ctfile.com/d/41895126-55856058-606d09?p=9167 (访问密码: 9167)
 
-![图片9](https://user-images.githubusercontent.com/132209620/235827311-221f76b9-eba2-4f3a-8f8e-89121fe06731.png)
+![自然](https://user-images.githubusercontent.com/132209620/236725721-ed96cbc4-c7ce-4c80-9f0b-f8606e357106.png)
 
 1. EPUB：https://url26.ctfile.com/d/41895126-55855938-b64100?p=9167 (访问密码: 9167)
 3. MOBI：https://url26.ctfile.com/d/41895126-55855932-5a7b25?p=9167 (访问密码: 9167)
 5. PDF：https://url26.ctfile.com/d/41895126-55855935-a72ff6?p=9167 (访问密码: 9167)
+
+![千奇百问](https://user-images.githubusercontent.com/132209620/236726796-62a2972c-7d0a-42c0-b000-1f5ce7d741a7.png)
+
+PDF：https://url26.ctfile.com/d/41895126-55609741-4171e6?p=9167 (访问密码: 9167)
+
+![虫宝宝](https://user-images.githubusercontent.com/132209620/236726970-eb0cf266-8525-4246-8569-b5658ef20e1e.png)
+
+PDF：https://url26.ctfile.com/d/41895126-55609750-a2e383?p=9167 (访问密码: 9167)
+
+![点击世界](https://user-images.githubusercontent.com/132209620/236727111-28f31d99-fafb-47d7-8d00-f1a68a4709eb.png)
+
+PDF：https://url26.ctfile.com/d/41895126-55609753-ddf0f4?p=9167 (访问密码: 9167)
+
+![鹅卵石](https://user-images.githubusercontent.com/132209620/236727301-95842491-d960-4bc6-95c8-e614ffb10da8.png)
+
+PDF：https://url26.ctfile.com/d/41895126-55609756-642d66?p=9167 (访问密码: 9167)
+
+![蟋蟀王国](https://user-images.githubusercontent.com/132209620/236727396-2a83922d-f3c0-4f12-9230-41ebdb5fecec.png)
+
+PDF：https://url26.ctfile.com/d/41895126-54351789-08d3f3?p=9167 (访问密码: 9167)
+
+![面孔](https://user-images.githubusercontent.com/132209620/236727525-9a3bc973-5792-4e24-8c97-bed90fef86e2.png)
+
+PDF：https://url26.ctfile.com/d/41895126-55609762-1e4bcf?p=9167 (访问密码: 9167)
+
+![缪斯](https://user-images.githubusercontent.com/132209620/236727667-85a59861-70d6-4c98-ae9b-e825df5ba9ae.png)
+
+PDF：https://url26.ctfile.com/d/41895126-55609747-34d97c?p=9167 (访问密码: 9167)
+
+![红蜘蛛](https://user-images.githubusercontent.com/132209620/236727805-1f3e5447-e67d-4329-a3e3-8de71dbe215d.png)
+
+PDF：https://url26.ctfile.com/d/41895126-55609759-b289d8?p=9167 (访问密码: 9167)
+
+![故事时刻](https://user-images.githubusercontent.com/132209620/236728009-3bc5254e-c376-4e5d-8fa2-7f537cc598f5.png)
+
+PDF：https://url26.ctfile.com/d/41895126-54351780-f96d1b?p=9167 (访问密码: 9167)
