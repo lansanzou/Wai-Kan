@@ -135,3 +135,49 @@ PDF：https://url26.ctfile.com/d/41895126-55619479-90f530?p=9167 (访问密码: 
 ![旅行版](https://github.com/lansanzou/Wai-Kan/assets/132209620/492b1e06-5c36-4d88-8ce8-b423863c82be)
 
 PDF：https://url26.ctfile.com/d/41895126-55619476-996bf0?p=9167 (访问密码: 9167)
+
+**五、科技系列**
+
+![天文学](https://github.com/lansanzou/Wai-Kan/assets/132209620/f4a5808f-aa33-4403-9275-2557023bce71)
+
+PDF：https://url26.ctfile.com/d/41895126-55652047-318c2b?p=9167 (访问密码: 9167)
+
+![Free 天文学](https://github.com/lansanzou/Wai-Kan/assets/132209620/7074c87b-57ff-464a-9fc1-a9a241b3ec26)
+
+PDF：https://url26.ctfile.com/d/41895126-55665798-51daf0?p=9167 (访问密码: 9167)
+
+![星空 望远镜](https://github.com/lansanzou/Wai-Kan/assets/132209620/730b4d65-0944-48cd-916e-8bf6609100d6)
+
+PDF：https://url26.ctfile.com/d/41895126-55666881-e3ee71?p=9167 (访问密码: 9167)
+
+![材料](https://github.com/lansanzou/Wai-Kan/assets/132209620/82737d8f-569a-47a1-827f-6a3d6c13e461)
+
+PDF：https://url26.ctfile.com/d/41895126-55683600-92b736?p=9167 (访问密码: 9167)
+
+![发现](https://github.com/lansanzou/Wai-Kan/assets/132209620/1a94ebe5-9624-4ada-977f-be64de6e7654)
+
+PDF：https://url26.ctfile.com/d/41895126-55652161-259631?p=9167 (访问密码: 9167)
+
+![科技生活资讯](https://github.com/lansanzou/Wai-Kan/assets/132209620/ecdd8040-f394-4fd9-b32d-5e6032966082)
+
+PDF：https://url26.ctfile.com/d/41895126-55683597-45486c?p=9167 (访问密码: 9167)
+
+![科学](https://github.com/lansanzou/Wai-Kan/assets/132209620/34215c7b-e351-4277-b5bd-c3a630f16e50)
+
+PDF：https://url26.ctfile.com/d/41895126-55666134-9b8323?p=9167 (访问密码: 9167)
+
+![科学美国人](https://github.com/lansanzou/Wai-Kan/assets/132209620/3514b24d-3256-4511-b7c1-a2399fd42d72)
+
+PDF：https://url26.ctfile.com/d/41895126-55666869-e0ba40?p=9167 (访问密码: 9167)
+
+![科学人](https://github.com/lansanzou/Wai-Kan/assets/132209620/6fe05fa0-0ce2-4f84-8ab3-f0e07ebfed51)
+
+PDF：https://url26.ctfile.com/d/41895126-55666890-033576?p=9167 (访问密码: 9167)
+
+![新科学人](https://github.com/lansanzou/Wai-Kan/assets/132209620/abb80c50-fa63-4b43-bcf1-12e687db01fd)
+
+PDF：https://url26.ctfile.com/d/41895126-55665810-17e13e?p=9167 (访问密码: 9167)
+
+![科学新闻](https://github.com/lansanzou/Wai-Kan/assets/132209620/084eb4da-3e64-4137-bf39-393862afd97e)
+
+PDF：https://url26.ctfile.com/d/41895126-55666656-8b46f7?p=9167 (访问密码: 9167)
