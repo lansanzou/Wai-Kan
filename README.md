@@ -178,6 +178,6 @@ PDF：https://url26.ctfile.com/d/41895126-55666890-033576?p=9167 (访问密码: 
 
 PDF：https://url26.ctfile.com/d/41895126-55665810-17e13e?p=9167 (访问密码: 9167)
 
-![科学新闻](https://github.com/lansanzou/Wai-Kan/assets/132209620/084eb4da-3e64-4137-bf39-393862afd97e)
+![科学新闻](https://github.com/lansanzou/Wai-Kan/assets/132209620/e8c7433d-57d6-49d4-93fb-bf3445d59837)
 
 PDF：https://url26.ctfile.com/d/41895126-55666656-8b46f7?p=9167 (访问密码: 9167)
