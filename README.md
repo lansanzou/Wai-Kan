@@ -113,3 +113,25 @@ PDF：https://url26.ctfile.com/d/41895126-55601194-a51b20?p=9167 (访问密码: 
 ![园艺世界](https://user-images.githubusercontent.com/132209620/236981583-bec40269-b9ff-4040-bfc3-e644dfec17c7.png)
 
 PDF：https://url26.ctfile.com/d/41895126-55601185-bfa058?p=9167 (访问密码: 9167)
+
+**四、国家地理系列**
+
+![普通版](https://github.com/lansanzou/Wai-Kan/assets/132209620/3ae6d4c7-73bb-4957-9ef3-11fe77492037)
+
+PDF：https://url26.ctfile.com/d/41895126-54351783-884e8d?p=9167 (访问密码: 9167)
+
+![儿童版](https://github.com/lansanzou/Wai-Kan/assets/132209620/97b0a56e-e77b-430a-8496-72361559e39f)
+
+PDF：https://url26.ctfile.com/d/41895126-55619473-cc9565?p=9167 (访问密码: 9167)
+
+![幼儿版](https://github.com/lansanzou/Wai-Kan/assets/132209620/4e89b9e8-f34e-4c8d-b2cc-48c6083a44e4)
+
+PDF：https://url26.ctfile.com/d/41895126-54351786-e5b926?p=9167 (访问密码: 9167)
+
+![历史版](https://github.com/lansanzou/Wai-Kan/assets/132209620/74c7b6d8-17cb-4fc5-8b14-48e0dd5fb261)
+
+PDF：https://url26.ctfile.com/d/41895126-55619479-90f530?p=9167 (访问密码: 9167)
+
+![旅行版](https://github.com/lansanzou/Wai-Kan/assets/132209620/492b1e06-5c36-4d88-8ce8-b423863c82be)
+
+PDF：https://url26.ctfile.com/d/41895126-55619476-996bf0?p=9167 (访问密码: 9167)
